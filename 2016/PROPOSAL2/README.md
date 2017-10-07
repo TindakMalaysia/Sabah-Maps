@@ -1,4 +1,4 @@
-# Electoral Boundaries Proposal by EC: Sabah, Round 2, 2017
+# Electoral Boundaries Proposal by EC: Sabah, Round 2, 2016
 
 Electoral Boundaries Proposal by EC.
 
